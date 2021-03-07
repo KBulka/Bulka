@@ -1,4 +1,4 @@
-# Ikonki 
+# Ikonki i obrazki Bułki
 Bierzcie i memujcie z tego wszyscy
 
 
